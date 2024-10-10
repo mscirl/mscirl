@@ -1,4 +1,4 @@
-## Olá a todes! Me chamo Thais Maciel 🌠
+## Olá! Me chamo Thais Maciel 🌠
 
 🧑🏽 <b>Pronomes</b>: ela/dela
 <br>
